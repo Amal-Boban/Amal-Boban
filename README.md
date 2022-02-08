@@ -7,4 +7,4 @@
 - 💬 Ask me about ...Anything(if i understand i will try to give an answer)
 - 📫 How to reach me: ...[Amal Boban @ LinkedIn](https://www.linkedin.com/in/amal-boban-19aaa01b7/)
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...I'am terrified of my cyber security
+- ⚡ Fun fact: ...I'am terrified about my cyber security
